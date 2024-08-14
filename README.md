@@ -72,7 +72,7 @@ A visualização de dados é uma habilidade essencial para qualquer Jedi dos Dad
 
 ### Conecte-se Comigo!
 
-[[Seu perfil no LinkedIn](https://www.linkedin.com/in/eric-np-santos/)]
+[[Meu LinkedIn](https://www.linkedin.com/in/eric-np-santos/)]
 
 Que a Força da Visualização esteja com você! 🚀✨
 
