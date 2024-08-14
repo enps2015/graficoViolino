@@ -68,11 +68,11 @@ A visualização de dados é uma habilidade essencial para qualquer Jedi dos Dad
 
 ### Repositório do Projeto
 
-[https://github.com/enps2015/graficoViolino]  
+https://github.com/enps2015/graficoViolino  
 
 ### Conecte-se Comigo!
 
-[[Meu LinkedIn](https://www.linkedin.com/in/eric-np-santos/)]
+[Meu LinkedIn](https://www.linkedin.com/in/eric-np-santos/)
 
 Que a Força da Visualização esteja com você! 🚀✨
 
